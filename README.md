@@ -3,7 +3,7 @@
 
 - 👨‍💻 All of my projects are available at [https://kevinmisati.netlify.app/](https://kevinmisati.netlify.app/)
 
-- 💬 Ask me about **Javascript,React**
+- 💬 Ask me about **JavaScript and React**
 
 - 📫 How to reach me **kevinmosigisi2001@gmail.com**
 
