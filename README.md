@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **kevinmosigisi2001@gmail.com**
 
-- 📄 Know about my experiences [https://1drv.ms/b/s!AkQ9sErctjBEgl0mxmcf4-nz2aKy](https://1drv.ms/b/s!AkQ9sErctjBEgl0mxmcf4-nz2aKy)
+- 📄 Know about my experiences [https://1drv.ms/w/s!AkQ9sErctjBEglsvX9UOIXknlahh](https://1drv.ms/w/s!AkQ9sErctjBEglsvX9UOIXknlahh)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
